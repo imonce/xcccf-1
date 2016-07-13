@@ -1,3 +1,3 @@
 #xcccf
 
-update project 
+crowd-funding  & pay project
